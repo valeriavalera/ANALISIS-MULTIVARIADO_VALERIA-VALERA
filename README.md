@@ -1,0 +1,2 @@
+# ANALISIS-MULTIVARIADO_VALERIA-VALERA
+ Valeria Mariana Valera Huansi 
